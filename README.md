@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @safar24
+- 👋 Hi, I’m Safar Alghamdi
 - 👀 I’m interested in Information Technology 
 - 🌱 I’m currently learning Cyber Security
 - 📫 How to reach me : www.linkedin.com/in/safaralghamdi
